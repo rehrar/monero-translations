@@ -1,0 +1,1 @@
+For the English version of this article, please go [here](https://btcmanager.com/what-is-kovri-why-is-it-important-for-monero/).
